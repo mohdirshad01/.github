@@ -13,7 +13,7 @@ Jaiho Rummy APK is a popular mobile game offering online rummy gameplay. This ca
 
 Jaiho Rummy provides a dynamic platform for playing online rummy with multiple variants. It stands out for its exciting gameplay and rewarding opportunities.
 
-## Click Download For Free :🤑 https://tinyurl.com/yczpynxd 🤑📲
+## Click Download For Free :🤑 https://tinyurl.com/yj93y3cf 🤑📲
 ![image](https://github.com/user-attachments/assets/9461376a-7a67-4221-b78e-416320ef069c)
 
 
